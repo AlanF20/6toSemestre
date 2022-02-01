@@ -13,4 +13,5 @@
    Dedicar mas horas a distracciones🎮️ | Distraerme facilmente😵‍💫
 
    > Alan Israel Flores Cabrera 19100179
+   ![amimir](/sources/mimir.jpeg)
 
